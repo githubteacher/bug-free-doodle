@@ -11,7 +11,7 @@
 -Hot springs
 
 ### Places to Avoid
--
+-None. :D
 
 ### Fun Facts
--
+-Metro and high speed rail way will make it easy to travel around the country anywhere.
