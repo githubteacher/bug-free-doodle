@@ -11,4 +11,4 @@
 - Food Connection
 
 ### Fun Facts
-- none
+- The most popular restaurant in Grand Terrace is McDonald's
