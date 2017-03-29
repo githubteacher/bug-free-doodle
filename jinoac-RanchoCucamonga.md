@@ -12,3 +12,4 @@
 ### Places to Avoid
 
 ### Fun Facts
+- Rancho Cucamonga was conceived by combining 3 small cities (Cucamonga, Etiwanda and Alta Loma)
