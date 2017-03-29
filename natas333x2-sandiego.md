@@ -1,7 +1,7 @@
 # San Diego, CA
 
 ### Places to eat
-One of 500 __"bertos"
+One of 500 __"bertos".  Albertos, Aibertos, Jillbertos, 
 
 ### Places to visit
 Rattlesnake Creek hiking trail.
@@ -10,4 +10,4 @@ Rattlesnake Creek hiking trail.
 East County
 
 ### Fun facts
-East county is actually ok.  
+East county is actually ok. If you like horses and pickup trucks.
