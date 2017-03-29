@@ -1,10 +1,10 @@
 # Cobourg, ON
 
 ### Places to eat
-- Oasis
-- Northumberland Heights
-- The Matterhorn
-- Jim's Pizza
+- Oasis - oyster bar
+- Northumberland Heights - German
+- The Matterhorn - Swiss
+- Jim's Pizza - pizza
 
 ### Places to visit
 - big Apple
