@@ -1,5 +1,9 @@
 # Upland, CA
 ### Places to Eat
-### Places to Visti
+- Up the hill to Mt. Baldy lodge for a nice view!
+- Don Jose's
+### Places to Visit
+- Madonna of the Trail
 ### Places ot Avoid
-### Fun Fas
+- Chaffey St.
+### Fun Facts
