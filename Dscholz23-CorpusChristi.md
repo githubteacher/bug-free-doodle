@@ -3,6 +3,7 @@
 ### Places to Eat
 Seafood, Snoopy's
 Tex Mex, LA Playa
+Italian, Island Italian
 
 
 ### Places to visit
