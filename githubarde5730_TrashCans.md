@@ -8,7 +8,9 @@
 ### Places to Visit
 - Balboa Park
 - Trash eating places
+- Fast and fast
 ### Places to Avoid
 Nooo
 ### Fun Facts
 Not at all
+eweee
