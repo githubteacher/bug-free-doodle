@@ -4,6 +4,8 @@
 -Din Tai Fon
 -Black Ball Dessert
 -Four sea restaurants
+-Snow ice Dessert
+-85 degree bakery and cafe
 
 ### Places to Visit
 -101 Building
