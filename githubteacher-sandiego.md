@@ -2,6 +2,8 @@
 
 ### Places to Eat
 - City Tacos
+- Tacos Perla?
+- Rubios
 - Sublime Eatery
 - Slater's 50/50
 
