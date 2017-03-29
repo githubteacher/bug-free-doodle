@@ -1,7 +1,7 @@
 # San Diego, CA
 
 ### Places to Eat
-- City Tacos
+- It's worth it to go to City Tacos
 - Tacos Perla?
 - Rubios
 - Sublime Eatery
