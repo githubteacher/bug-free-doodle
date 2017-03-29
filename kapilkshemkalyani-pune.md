@@ -8,8 +8,5 @@
 ### Places to Visit
 - Sinhagad Fort
 
-### Places to Avoid
-- Budhwar Peth
-
 ### Fun Facts
 - Best city to live
