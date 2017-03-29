@@ -1,8 +1,8 @@
 # Redlands
 
 ### Places to Eat
-- Moo
-- Gorment
+- Moo Thai
+- Gourmet Pizza
 - Habbit
 
 ### Places to Visit
