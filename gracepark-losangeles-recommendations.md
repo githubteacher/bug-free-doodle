@@ -11,6 +11,7 @@
 
 ### Places to Avoid
 - The 405
+- Hollywood
 
 ### Fun Facts
 - I'm the only GitHubber in LA
