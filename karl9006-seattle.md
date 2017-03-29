@@ -6,7 +6,7 @@
 - Skillet
 
 ### Places to Visit
-- Pony
+- Pony (13th and Madison on Capitol Hill)
 - Madison Pub
 - Captain Blacks
 
