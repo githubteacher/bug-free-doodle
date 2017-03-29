@@ -1,7 +1,7 @@
 # Atlanta, GA
 
 ### Places to Eat
-* Flip Burger
+* Flip Burger (best milkshakes in town)
 * Waffle House
 * Feline's
 * La Fonda
